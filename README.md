@@ -1,1 +1,1 @@
-https://T-Narender.github.io/resume/updatedResume.pdf
+https://T-Narender.github.io/resume/Resume.pdf
